@@ -10,4 +10,3 @@
 ### Modo de preparo
 
 Juntar tudo em camadas e assar por 40 minutos e comer.  
-
